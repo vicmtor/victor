@@ -1,1 +1,2 @@
-# victor
+# Un bon référencement de site internet est l'élément fiable d'une bonne campagne de communication.
+Améliorer sa visibilité est important, car cela permet aux utilisateurs de trouver votre site par eux-mêmes, sans passer par le référencement payant. Ainsi, les visiteurs uniques ou nouveaux visiteurs quotidiens sont des clients qui boostent la croissance de votre entreprise. De plus, le référencement naturel est gratuit et le fonctionnement est simple puisque lorsqu'un internaute Google tape une requête à l'aide de mots-clés sur le moteur de recherche, plusieurs sites vont se positionner sur la page de résultats. Plus précisément, c'est un réel avantage de la communication, car si elle est bien faite, alors elle peut générer un débit de trafic important.
